@@ -3,7 +3,7 @@
 
 🏆 2022 UBION Project2
 
-![슬라이드1](https://user-images.githubusercontent.com/88031549/210496313-5ffc49fd-79cd-4f29-a5dc-cfd0fbe2a4eb.png)
+![DB공모전_returnup](https://user-images.githubusercontent.com/88031549/221447948-0bfa5640-94ac-4d7d-a717-c66c8a27b5d4.jpg)
 
 ![슬라이드6](https://user-images.githubusercontent.com/88031549/210496374-9d83bf4f-32b9-41f6-8f87-6e365a3c7b28.png)
 
